@@ -1,9 +1,8 @@
-# Spam Sms Unlimited
+# Spam Sms
 
 ```
-Tools Spam Sms Unlimited Terbaru Ini Di Ciptakan Untuk Ngeprank Temen Lu
-Yg Suka Mabar Game Online Auto Ngelag Awokawok :)
-
+Tools Spam Sms Pake Teks Bisa Diisi Sendiri Terbaru Ini Di Ciptakan Untuk Neror Temen/Mantan Lu
+Yg Udah Nyakitin Lu Auto Balas Dendam Awokawok :)
 ```
 # Info
 ```
